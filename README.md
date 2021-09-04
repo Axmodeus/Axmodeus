@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Axmodeus
+- 👀 I’m interested in games n anime
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on none rn
+- 📫 How to reach me none rn
